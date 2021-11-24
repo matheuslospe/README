@@ -1,3 +1,7 @@
-# Olá, eu sou o Matheus Lopes <br>
+# Olá, me chamo Matheus Lopes <br>
 Estudo no Cotemig.📚<br>
-📫 21901651@aluno.cotemig.com.br
+
+CO-Creator of lupes.com.br
+email profissional para contato: suporte@lupes.com.br
+
+email pessoal para contato: matheuspereira044@gmail.com
